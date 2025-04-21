@@ -1,2 +1,3 @@
 # Nope
-Apa ajalah
+-# Choky want to be anime
+©SukiBlyat
